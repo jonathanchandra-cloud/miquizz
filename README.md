@@ -1,1 +1,1 @@
-# MAXIM-PLAN
+# MIQUIZZ
